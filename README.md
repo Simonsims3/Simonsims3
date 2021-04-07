@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Simonsims3
+- 👀 I’m interested in learning new things
+- 🌱 I’m currently learning developement on FiveM
+- 📫 You can reach me on discord @SimoN#6253
